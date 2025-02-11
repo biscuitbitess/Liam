@@ -4,3 +4,6 @@
 
 ꣑୧　　houndurian　_ _ ◟　minor　꒰ఎ ໒꒱
 キ ﹒﹒　so6w5sx　(⠀너⠀) 　intp　 𝜚　˙ 　˖
+
+
+![IMG_1766](https://github.com/user-attachments/assets/b98abbfb-d54a-4ede-ae84-6a08f68d262b)
